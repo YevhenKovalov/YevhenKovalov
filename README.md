@@ -6,6 +6,8 @@ I’m beginer iOS Developer and still seaman (Electro-Technical Officer).
 
  📫 How to reach me? That is simple: 
  Twitter: (https://twitter.com/YevhenOlegovich)
+ Email: Seki4lologames@gmail.com
+ 
 
 
 
