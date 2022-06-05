@@ -4,7 +4,7 @@ I’m beginer iOS Developer and still seaman (Electro-Technical Officer).
 👀 I’m interested and 🌱 currently learning : UIKit and SwiftUI.  
 
  📫 How to reach me? That is simple: 
- Twitter: Email Twitter: YevhenOlegovich
+ Twitter: [Email Twitter: YevhenOlegovich](https://twitter.com/YevhenOlegovich)
 
 
 
